@@ -14,3 +14,5 @@ https://www.printables.com/model/660112-low-profile-case-for-piantor-pro-42-36-k
 But this is for the Pro Version, wrong case printed, need to cut out
 
 ![IMG_20250426_100544644](https://github.com/user-attachments/assets/fed618d9-bd4c-4dbb-a043-4f8d9521ef17)
+![IMG_20250426_103257042](https://github.com/user-attachments/assets/e1b5d3b6-8442-471c-b30e-0cd44a08838f)
+
